@@ -1,0 +1,2 @@
+# softwerove-inzinierstvo
+pre swi
